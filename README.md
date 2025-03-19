@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...at JKUAT
 - 💞️ I’m looking to collaborate on ... guydangerous360@gmail.com
 - 📫 How to reach me ... gwandarovictor@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: ...he
 - ⚡ Fun fact: ...can solve boxproblem in 1 minute
 
 <!---
